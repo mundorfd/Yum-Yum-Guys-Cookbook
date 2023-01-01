@@ -28,7 +28,10 @@ Serve with your favorite dippers, like crackers or veggies, and share with your 
 
 ## Notes
 
-This is always a hit. Charlie said he loved it but recommended smaller water chestnuts when I made it for Thanksgiving 2022. So for Christmas, I asked Tim to help out. He texted Charlie:
+This is always a hit. 
+
+Charlie said he loved it but recommended smaller water chestnuts when I made it for Thanksgiving 2022. So for Christmas, I asked Tim to help out with the chopping. He texted Charlie:
+
 Tim: "So what is the proper size of water chestnuts in spinach dip? Halves? Quarters? I'm the sous chef."
 Charlie (30 minutes later): "Lol I couldn't tell you by heart, it's more of a feeling."
 Tim: "Well, I got a feeling it's quarters because it's too late for anything else."
