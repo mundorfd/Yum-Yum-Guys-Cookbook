@@ -28,7 +28,7 @@ Using a slotted spoon or spider, agitate the chickpeas, giving them a gentle sha
 If using canned chickpeas, spread them out between two kitchen towels and use your hands to vigorously rub the towels together for a few minutes. Don’t press down too hard on the chickpeas; you don’t want to crush them. Lift the top towel, to see how you’re doing—the friction should have caused the chickpea skins to be released. Discard the skins.
 
 Put the canned (and now peeled) chickpeas into a saucepan with enough water to cover, 1 teaspoon of salt, and a pinch of cumin. Simmer for 15 minutes, until soft.
-##
+
 Drain the chickpeas over a bowl, saving the water. Put the warm chickpeas into a food processor with 7 tbsp/120g of tahini, the garlic, lemon juice, a couple of ice cubes (scant 1 oz/25g worth), 2 tablespoons of reserved chickpea water and a good pinch of salt. Blitz until smooth(ish), then check on the hummus. You might need more tahini, garlic, lemon, and salt and very likely more chickpea water. Add a bit of each as you need. Don’t be shy about adding more tahini—each brand differs and may require you to use more. Blitz the hummus until very smooth, a few minutes at least. Don’t worry about the hummus being too loose; it will thicken as it sits.
 
 When ready, spread the hummus in a shallow bowl, creating a well in the center. (If not serving right away, store in a sealed container in the fridge for up to 2 days.) Top with a generous glug of olive oil, then personalize your hummus as you wish. We sometimes add herbs, toasted nuts, or rose harissa, but these are just suggestions. Once you get the base right, hummus knows no bounds.
