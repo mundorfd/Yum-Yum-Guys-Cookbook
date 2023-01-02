@@ -2,23 +2,20 @@
 
 ## Ingredients
 
-1 box (10 oz.) frozen chopped spinach, cooked, cooled, and squeezed dry
-1 container (16 oz.) sour cream
-1 cup Hellmann's® or Best Foods® Real Mayonnaise
-1 package Knorr® Vegetable recipe mix
-1 can (8 oz.) water chestnuts, drained and chopped (optional)
-3 green onions, chopped (optional)
-Round loaf of sourdough bread
+- 1 box (10 oz.) frozen chopped spinach, cooked, cooled, and squeezed dry
+- 1 container (16 oz.) sour cream
+- 1 cup Hellmann's® or Best Foods® Real Mayonnaise
+- 1 package Knorr® Vegetable recipe mix
+- 1 can (8 oz.) water chestnuts, drained and chopped (optional)
+- 3 green onions, chopped (optional)
+- Round loaf of sourdough bread
 
 ## Directions
 
-Combine all ingredients in a bowl and mix.
-
-Chill for about 2 hours. 
-
-Cut off the top of the round loaf and tear out the bread out of the middle. Set aside for dippers. Fill the bread bowl shell with the chilled dip.
-
-Serve with your favorite dippers, like crackers or veggies, and share with your favorite people.
+1. Combine all ingredients in a bowl and mix.
+2. Chill for about 2 hours. 
+3. Cut off the top of the round loaf and tear out the bread out of the middle. Set aside for dippers. Fill the bread bowl shell with the chilled dip.
+4. Serve with your favorite dippers, like crackers or veggies, and share with your favorite people.
 
 ## Notes
 
