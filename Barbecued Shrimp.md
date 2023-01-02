@@ -10,7 +10,7 @@
 - 10 cloves garlic minced
 - 3 bay leaves
 - 1/4 cup Worcestershire sauce
-- 1 tablespoon Essence recipe follows
+- 1 tablespoon Essence (recipe follows)
 - 1/2 teaspoon cayenne
 - 2 teaspoons fresh rosemary
 - 2 teaspoons fresh oregano
