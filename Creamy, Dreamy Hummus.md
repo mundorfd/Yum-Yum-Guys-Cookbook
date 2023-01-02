@@ -1,12 +1,4 @@
-Creamy, Dreamy Hummus From Ottolenghi Test Kitchen
-
-★★★★★
-Appetizers
-Servings: 6 as an appetizer
-
-## Source
-
- [Classic Hummus Recipe From Ottolenghi Test Kitchen](https://food52.com/recipes/87555-hummus-recipe-from-ottolenghi-test-kitchen)
+Creamy, Dreamy Hummus
 
 ## Ingredients
 
@@ -35,4 +27,7 @@ Skinning Chickpeas/Garbanzo beans is a pain in the ass. And I've never even seen
 
 [Super Quick Video Tips: Easiest Way to Skin Chickpeas for Super Smooth Hummus - America's Test Kitchen](https://youtu.be/2Hh9tDJoUjw)
 
+## Source
+
+ [Classic Hummus Recipe From Ottolenghi Test Kitchen](https://food52.com/recipes/87555-hummus-recipe-from-ottolenghi-test-kitchen)
 

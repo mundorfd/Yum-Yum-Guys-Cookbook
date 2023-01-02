@@ -1,9 +1,5 @@
 # Sous Vide Shrimp Cocktail
 
-## Category
-
-- Appetizers
-
 ## Ingredients
 
 ### Shrimp
