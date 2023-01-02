@@ -1,11 +1,5 @@
 # Knorr Spinach Dip
 
-## Category
-
-Appetizers
-
-Prep Time: 10 min  | Servings: 32 
-
 ## Ingredients
 
 1 box (10 oz.) frozen chopped spinach, cooked, cooled, and squeezed dry
