@@ -37,4 +37,4 @@ Preheat the oven to 350 degrees F. Rinse the shrimp under cold running water and
 
 ## Source
 
-Deborah Mundorff, originally seeen on Emeril Lagasse's Food Network show
+Deborah Mundorff, originally seen on Emeril Lagasse's Food Network show
