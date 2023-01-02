@@ -1,13 +1,5 @@
 # Barbecued Shrimp
 
-## Category
-
-- Appetizers
-
-## Source
-
-Emeril Lagasse
-
 ## Ingredients
 
 ### Shrimp
@@ -42,3 +34,7 @@ Emeril Lagasse
 ## Directions
 
 Preheat the oven to 350 degrees F. Rinse the shrimp under cold running water and let drain. Spread in 1 layer in a large roasting pan or baking dish. Melt the butter in a large saucepan. Add the remaining ingredients, except the shrimp and bread, and stir to mix well. Remove from the heat and pour over the shrimp. Bake in the oven until the shrimp are pink and cooked through, 30 to 40 minutes, stirring occasionally to keep the shrimp from drying out. Remove from the oven and pour into a large serving bowl or individual bowls to be peeled and eaten at tableside, with hot French bread for dunking in the sauce.
+
+## Source
+
+Deborah Mundorff, originally seeen on Emeril Lagasse's Food Network show
