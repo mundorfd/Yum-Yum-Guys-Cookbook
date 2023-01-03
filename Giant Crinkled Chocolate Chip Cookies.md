@@ -31,4 +31,4 @@ At 100 G per cookie, they are HUGE. Hard to keep them from running together eve 
 
 ## Source
 
-[NYT Cooking](https://cooking.nytimes.com/recipes/1018945-giant-crinkled-chocolate-chip-cookies)
+Deb M. from [NYT Cooking](https://cooking.nytimes.com/recipes/1018945-giant-crinkled-chocolate-chip-cookies)

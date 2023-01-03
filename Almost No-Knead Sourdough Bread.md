@@ -28,3 +28,11 @@ Combine flour, water, and starter in small bowl and stir with wooden spoon until
 4. Lay 12- by 12-inch sheet of parchment paper on counter and spray generously with vegetable oil spray. Uncover colander, and unfold edges of towel. Lay parchment sprayed side down over loaf, then invert colander onto counter. Remove colander and towel.
 5. Carefully remove Dutch oven from oven, place on stovetop, and set lid aside. Using razor blade or sharp knife, make one 7-inch-long, 1/2-inch-deep slit along top of dough. Pick up dough by lifting parchment edges and lower into Dutch oven. Carefully cover pot and transfer to oven. Bake for 20 minutes.
 6. Remove lid, reduce oven temperature to 425 degrees, and continue to bake until loaf is deep brown and registers 210 degrees, 15 to 25 minutes longer. Carefully remove bread from pot; transfer to wire rack and let cool completely before slicing, 2 to 3 hours. (Store uneaten bread cut side down on cutting board for up to 3 days.)
+
+## Notes
+
+Motivated to make this after reading [The Kitchen Counter Cooking School: How a Few Simple Lessons Transformed Nine Culinary Novices into Fearless Home Cooks: Flinn, Kathleen](https://www.amazon.com/gp/product/0143122177/ref=as_li_qf_sp_asin_tl?ie=UTF8&camp=1789&creative=9325&creativeASIN=0143122177&linkCode=as2&tag=kathleenflinn-20)
+
+## Source
+
+Deb M. from Cooks Illustrated

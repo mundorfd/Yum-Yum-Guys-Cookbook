@@ -32,3 +32,7 @@
 To Make Ahead: Cooked and chilled shrimp and cocktail sauce can be refrigerated for up to 24 hours.
 
 I purchased Costco 9/4 count shrimp. I also was lazy and used store-bought cocktail sauce.  These were delicious and very, very, easy. Need to be a bit more careful when shelling.
+
+## Source
+
+Deb M. from Cooks Illustrated

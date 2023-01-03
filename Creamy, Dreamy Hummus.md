@@ -29,5 +29,5 @@ Skinning Chickpeas/Garbanzo beans is a pain in the ass. And I've never even seen
 
 ## Source
 
- [Classic Hummus Recipe From Ottolenghi Test Kitchen](https://food52.com/recipes/87555-hummus-recipe-from-ottolenghi-test-kitchen)
+Deb M. from [Classic Hummus Recipe From Ottolenghi Test Kitchen](https://food52.com/recipes/87555-hummus-recipe-from-ottolenghi-test-kitchen)
 

@@ -28,4 +28,6 @@ Charlie (30 minutes later): "Lol I couldn't tell you by heart, it's more of a fe
 Tim: "Well, I got a feeling it's quarters because it's too late for anything else."
 Charlie: Haha.
 
-Source: https://www.knorr.com/us/en/recipes/knorr-spinach-dip-recipe.html
+## Source
+
+Deb M. modified from [Knorr Spinach Dip Recipe | Knorr US](https://www.knorr.com/us/en/recipes/knorr-spinach-dip-recipe.html).
