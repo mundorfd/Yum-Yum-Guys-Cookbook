@@ -1,4 +1,4 @@
-Creamy, Dreamy Hummus
+# Creamy, Dreamy Hummus
 
 ## Ingredients
 
