@@ -1,4 +1,4 @@
-# Crêpes with roasted maple time butternut squash, Stilton, and hazelnuts
+# Crêpes With Roasted Maple Time Butternut Squash, Stilton, and Hazelnuts
 
 ## Ingredients
 
