@@ -2,7 +2,7 @@
 
 ## Description
 
-This is my absolute favorite salad. When Darcy first shared 1t with me. I made it over and over again until the fourth or fifth time in a couple of weeks. and Chuck complained and asked 1f I was going to make that "goddamm salad" again. So we don't call 1t Cornucopia salad anymore,·but still love 1t :-)
+This is my absolute favorite salad. When Darcy first shared it with me. I made it over and over again until the fourth or fifth time in a couple of weeks. Chuck complained and asked if I was going to make that "goddamm salad" again. So we don't call it Cornucopia salad anymore,·but still love it :-)
 
 ## Ingredients
 
