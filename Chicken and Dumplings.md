@@ -1,6 +1,6 @@
 # Chicken and Dumplings
 
-<img src="images/dumplings_sam.jpg" alt="drawing" style="width:200px;"/>
+<img src="images/dumplings_sam.jpg" alt="dumplings" style="width:200px;"/>
 
 ## Description
 
