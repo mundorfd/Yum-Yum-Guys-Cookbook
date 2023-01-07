@@ -1,5 +1,12 @@
 # Chicken and Dumplings
 
+![](images/dumplings_sam.jpg)
+
+## Description
+
+One of our family favorites, Samantha has chosen this repeatedly as her birthday dinner. It takes quite a while, always takes longer than I think it will.
+
+
 ## Ingredients
 
 - 5 pounds chicken thigh, bone-in, skin on
@@ -35,8 +42,6 @@
 ## Notes
 
 Don't use low-fat or fat-free milk in this recipe. Start the dumpling dough only when you're ready to top the stew with the dumplings.
-
-One of our family favorites, Samantha has chosen this repeatedly as her birthday dinner. It takes quite a while, it always takes longer than I think it will.
 
 ## Source
 
