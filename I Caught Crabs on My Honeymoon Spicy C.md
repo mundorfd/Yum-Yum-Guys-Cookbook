@@ -6,16 +6,16 @@ Chuck and I were both still in school when we got married and couldn't afford a 
 
 ## Ingredients
 
-2 whole Dungeness crabs -- shelled
-1 C sharp cheddar cheese -- shredded fine
-½ C mayonnaise
-¼ C green pepper -- minced
-2 green onions -- finely chopped
-1 tsp garlic powder
-½ tsp salt
-½ tsp dry mustard
-½ tsp ground red pepper
-french bread
+- 2 whole Dungeness crabs -- shelled
+- 1 C sharp cheddar cheese -- shredded fine
+- ½ C mayonnaise
+- ¼ C green pepper -- minced
+- 2 green onions -- finely chopped
+- 1 tsp garlic powder
+- ½ tsp salt
+- ½ tsp dry mustard
+- ½ tsp ground red pepper
+- french bread
 
 ## Directions
 
