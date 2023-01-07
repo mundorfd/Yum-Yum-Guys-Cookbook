@@ -1,6 +1,6 @@
 # Chicken and Dumplings
 
-![](images/dumplings_sam.jpg)
+<img src="images/dumplings_sam" alt="drawing" style="width:200px;"/>
 
 ## Description
 
