@@ -17,7 +17,7 @@ One of our family favorites, Samantha has chosen this repeatedly as her birthday
 - 1 large onion, minced
 - 6 tablespoons unbleached all-purpose flour
 - 1/4 cup dry sherry
-- 4 1/2 cups low-sodium chicken broth
+- 4 1/2 cups of low-sodium chicken broth
 - 1/4 cup whole milk
 - 1 teaspoon minced fresh thyme leaves
 - 2 bay leaves
