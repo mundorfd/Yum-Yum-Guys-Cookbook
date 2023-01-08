@@ -1,6 +1,6 @@
 # Chicken and Dumplings
 
-<img src="https://deborahmundorff.com/Yum/wp-content/uploads/2023/01/dumplings_sam.jpg" alt="dumplings" style="width:200px;"/>
+<img src="https://deborahmundorff.com/Yum/wp-content/uploads/2023/01/dumplings_sam.jpg" alt="dumplings" style="width:200px"/>
 
 ## Description
 
