@@ -6,6 +6,8 @@ One of our family favorites, Samantha has chosen this repeatedly as her birthday
 
 ## Ingredients
 
+### Stew
+
 - 5 pounds chicken thigh, bone-in, skin on
 - salt and pepper
 - 4 teaspoons vegetable oil
@@ -21,7 +23,9 @@ One of our family favorites, Samantha has chosen this repeatedly as her birthday
 - 2 bay leaves
 - 1 cup frozen green peas
 - 3 tablespoons minced fresh parsley leaves
-- Dumplings
+
+### Dumplings
+
 - 2 cups unbleached all-purpose flour
 - 1 tablespoon baking powder
 - 1 teaspoon table salt
