@@ -1,7 +1,5 @@
 # Chicken and Dumplings
 
-<img src="https://deborahmundorff.com/Yum/wp-content/uploads/2023/01/dumplings_sam.jpg" alt="dumplings" style="width:200px"/>
-
 ## Description
 
 One of our family favorites, Samantha has chosen this repeatedly as her birthday dinner. It takes quite a while, don't underestimate, but not difficult and worth it.
